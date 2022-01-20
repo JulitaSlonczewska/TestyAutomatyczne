@@ -1,1 +1,1 @@
-to jest głupie - nowa wersja
+to ja, Julita - nowa wersja
